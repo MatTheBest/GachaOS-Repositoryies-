@@ -1,2 +1,2 @@
 # GachaOS-Repositoryies-
-now will create that????
+Going to after make GachaOS?
